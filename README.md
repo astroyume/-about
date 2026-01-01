@@ -20,7 +20,7 @@ my dni status changes alot and definetly when we're going through episodes
 　dni: dont interact in dms at all (excluding 3tismskis)
 　dniaa: try not to interact on anything (esp servers) unl important (excluding 3tismskis)
 　dniuc: twt/mmgc/br gc, 3tismskis, usually not people i friended recently
-　dniuec: 3tismskis, dove, lio, qaixe.
+　dniuec: 3tismskis, dove, lio.
 　iwcare: interact with tonetags more often usually
 　iwc/iwec: definetly angry someway
 　iayor: will be blunt (I dont use this often)
