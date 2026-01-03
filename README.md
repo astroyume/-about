@@ -26,3 +26,9 @@ my dni status changes alot and definetly when we're going through episodes
 　iayor: will be blunt (I dont use this often)
 　dniuf: dni unless i have you added
 　ok thx for reading and pls follow the dni.. AND REMEMBER DONT EVER DM OR FRQ UNLESS OOMF..
+
+# 🦋　꒰꒰　✙　fandoms
+hamilton , forsaken , DIVE !!! , dg/fs , dw , deltarune , undertale , tlg , a broken dream , grace , wc(ue) , cod/bo6 , fnaf , stranger things , sonic and friends , VD , squid games , epic the musical , heathers , alnst , superman ( superbat lelel ) , lackadaisy , pjsk , phighting , murder drones , tadc , uu (unstable universe) , lifesteal , most minecraft smps ( but the ones blacklisted ) , blocktales , + more ( updated frequently )
+
+in these fandoms a bit:
+final fantasy , zelda , law of talos , god of war , lucky star , minecraft + roblox args , TTGo, nso
