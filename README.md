@@ -1,6 +1,6 @@
 # 🍓　꒰꒰　✙　about　me
 　hallo! my name is urb or urban and we collectivly go by medic, but are planning to change our collective name.
-i am a nonsharing astro, tenna and squire yume and a selective sharing nosferatu and elliot yume
+i am a nonsharing astro, tenna, hatred (bt) and squire yume and a selective sharing nosferatu and elliot yume
 please ask to dm, friend request and dont ping me ever randomly unless you're a friend
 
 # 🎃　꒰꒰　✙　about the system
